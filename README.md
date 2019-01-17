@@ -1,2 +1,0 @@
-# shijianwuran.github.io
-blog
